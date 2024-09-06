@@ -12,5 +12,5 @@ joaodesigns60@gmail.com
 
 @joaosan06
 
-![força nos estudos](![image](https://github.com/user-attachments/assets/8ac4d31a-7240-4114-a26b-dd54671fb500)
+![força nos estudos](<iframe src="https://giphy.com/embed/zkG4mETnvHCJUyeZCY" width="480" height="480" style="" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/academia-bombado-msculos-zkG4mETnvHCJUyeZCY">via GIPHY</a></p>)
 )
